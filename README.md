@@ -40,4 +40,3 @@ Secured a position among the **🏆 Top 8 National Finalists** and had the oppor
 
 ---
 
-This README provides a structured and detailed overview of the project, highlighting your achievements and skills applied in a professional and engaging manner.
